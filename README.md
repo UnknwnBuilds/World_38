@@ -8,4 +8,4 @@ Note: The Ruins in the top right are based off the ancient City of Petra.
 
 Image: https://imgur.com/a/sWa0gpP
 
-Timelapse: https://www.youtube.com/watch?v=5FAkADelMB4
+Timelapse: https://youtu.be/IyDhHDuhIio
